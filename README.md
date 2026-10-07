@@ -1,0 +1,1 @@
+I’m Leul Ali, also known as Leul YTU, founder of YTU Technologies — Your Technology Unlocked — in Reston, Virginia. My work focuses on AI, software and automation. YTU’s developing projects include the YTU AI public beta, the Veriqa retail-operations prototype and experimental autonomous systems. Our approach is Listen → Understand → Unlock.
